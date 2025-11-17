@@ -1,3 +1,3 @@
 # test
-test amaçlı
+test amaçlı değilllllllllllllllllll
 kfklgsduaşsıfhşasdfhşadshfşadsh
