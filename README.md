@@ -1,2 +1,2 @@
 # test
-test amaçlı
+test amaçlı değil
